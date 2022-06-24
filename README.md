@@ -1,1 +1,1 @@
-# VISHWAS---Eyes-for-people-with-Visual-Disabilities
+# VISHWAS-Eyes-for-people-with-Visual-Disabilities
